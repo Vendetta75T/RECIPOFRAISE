@@ -27,3 +27,4 @@ Extrudeuse de mesure de compoundage / Homogénéisateur dynamique / Machine de c
 Prix vente suggéré :	4,50 € 	 	Notes / Commentaires :					
 Coût d'aliments (%) :	24%	 								
  
+DTC RECIPOGY ! Frangine, tu me dois un coup à boire ! :)
